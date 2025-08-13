@@ -1,5 +1,3 @@
 ## Hi there 👋
-
-<!--
-🧙 Creating the next generation Digital Beings...stay tuned...
--->
+🧙 At nexanima we re building the next generation of virtual beings. 
+If you want to know more just get in touch...we are cooking...
